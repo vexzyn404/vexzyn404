@@ -1,2 +1,2 @@
 - 👋 Hi, I’m VexZyn
-- 📫 If you want to reach me add vexzyn404 on discord
+- 📫 If you want to reach me add visback_ on discord
